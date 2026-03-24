@@ -1,2 +1,0 @@
-# SectionB_LAb4
-
